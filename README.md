@@ -1,16 +1,11 @@
-## Hi there 👋
-
-<!--
-**Alfa40012/Alfa40012** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+أفضل الكلمات المفتاحية المرتبطة بكلمة "اشتراك IPTV":
+الكلمة	حجم البحث	مستوى المنافسة
+اشتراك IPTV	🔥 الأعلى	متوسطة
+اشتراك IPTV بدون تقطيع	ممتازة	منخفضة
+أفضل اشتراك IPTV 2025	جيد	منخفضة
+اشتراك IPTV شهري	جيد	منخفضة
+اشتراك BEIN IPTV	جيد	منخفضة
+اشتراك IPTV اندرويد	جيد	منخفضة
+IPTV السعودية	قوي	متوسط
+IPTV مصر	قوي	منخفض
+رسيفر IPTV	ممتاز	متوسط
